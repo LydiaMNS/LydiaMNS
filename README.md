@@ -71,4 +71,4 @@ En dehors du code, je cultive ma discipline par le fitness et la natation, et je
 
 * **Email :** [lydiamenas01@gmail.com](mailto:lydiamenas01@gmail.com)
 * **LinkedIn :** [Lydia Menas](https://www.linkedin.com/in/lydia-menas-441090303/)
-* **Localisation :** Lyon, France
+
